@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ridwansr043@gmail.com**
 
-- ⚡ Fun fact **I am nerd guy lol**
+- ⚡ Fun fact **I'm a clumsy person lol**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
